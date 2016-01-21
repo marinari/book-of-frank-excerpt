@@ -37,6 +37,5 @@ of my Soul
 it will pass"
 ```
 ----
-Published by Wave Books
-www.wavepoetry.com
+Published by [Wave Books](www.wavepoetry.com)
 Copyright 2009 by CAConrad
